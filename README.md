@@ -1,1 +1,1 @@
-# mid-komputer
+# mid-komputer.github.io
